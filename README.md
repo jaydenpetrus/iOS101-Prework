@@ -1,4 +1,4 @@
-# Prework - My Coolest New App*
+# Prework - **My Coolest New App**
 
 Submitted by: **Jayden Petrus**
 
